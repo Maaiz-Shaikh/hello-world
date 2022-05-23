@@ -8,17 +8,17 @@ I am also interested in the field of Web development and App development. And, i
 I am a fitness freak and want to introduce fitness factor in the software developer's field which I think a unique as well as an interesting concept.
 
 Talking about my qualities:
-✨Discipled, 
-✨Sincere, 
-✨Honest, 
-✨Learning Attitude, 
-✨Self-Learner 
+-✨Discipled, 
+-✨Sincere, 
+-✨Honest, 
+-✨Learning Attitude, 
+-✨Self-Learner 
 
 Talking about my skill-sets:
-🕓Time Management, 
-🙎‍♂️Typing, 
-🙇‍♂️Programming in python, c, java
-🙂Communication Skill
-👮🏻‍♂️Leadership skill
-📽Presentation skill
-🏊‍♂️Swimming
+-🕓Time Management, 
+-🙎‍♂️Typing, 
+-🙇‍♂️Programming in python, c, java
+-🙂Communication Skill
+-👮🏻‍♂️Leadership skill
+-📽Presentation skill
+-🏊‍♂️Swimming
